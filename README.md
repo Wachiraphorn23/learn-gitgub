@@ -1,1 +1,3 @@
 # learn-gitgub
+
+There is a passion for entering the technology industry, focussing on software development, web development, and problem-solving, and looking for new opportunities and challenges. There is a special interest in software development. Although I have no experience in this work I have coding skills in Python, Java, JavaScript, and PHP, and I am ready to learn new things And always strive to develop myself Experience in collaboration and can work effectively both independently and in a team I Have strong analytical and communication skills Eager to use academic knowledge and practice to support the success of the company thinking forward.
